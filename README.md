@@ -1,7 +1,6 @@
 - Hi, I’m bread/Alice
 - The trans girl to programmer pipeline is real 
 - I host a Minecraft server for free on oraclecloud
-- Bread Defender on youtube.com
 - Training to try to get a job.
 - Discord is my passion.
 <!---
