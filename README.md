@@ -1,4 +1,4 @@
-- Hi, I’m bread/Alice
+- Hi, I’m bread/Allie
 - The trans girl to programmer pipeline is real 
 - I host a Minecraft server for free on oraclecloud
 - Training rn.
